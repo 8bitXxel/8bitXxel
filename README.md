@@ -1,16 +1,16 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**8bitXxel/8bitXxel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![image](https://pixelsafari.neocities.org/blinkies/citystars.png)
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+w2i always! i'm offtab often !
+
+
+cuddle seeker! i'll leave when you with your friends!
+
+
+ask me anything in my ata book! open to do req or skin trade : D
+
+![image](https://i.postimg.cc/t4x6jfcQ/gray.gif)
+
+![image](https://pixelsafari.neocities.org/stamps/more/water.png)
